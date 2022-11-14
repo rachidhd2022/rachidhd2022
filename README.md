@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rachidhd2022
-- 👀 I’m interested in filed of ads
+- 👀 I’m interested in field of ads
 - 🌱 I’m currently learning MY PhD in heat transfer
 - 💞️ I’m looking to collaborate on my field of expertise
 - 📫 How to reach me https://www.linkedin.com/in/rachid-hidki-82711716b/
